@@ -1,2 +1,2 @@
-# agiledados
-Usando dados para influenciar comportamentos que constroem uma cultura de evolução e adaptação contínua, elevando a consciência humana gradual e consistentemente para distribuir bem estar, PRIORITARIAMENTE aos que mais carecem disso.
+# Ágil e Dados
+Dados influenciando comportamentos e cultura de evolução, elevação contínua da consciência humana. Gradual e consistentemente, visando equilibrar o bem estar entre todas as pessoas.
